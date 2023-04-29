@@ -16,4 +16,5 @@ new -> .2, .17, .14, .11, .08, .05, .02, 0, 0, 0, 0, 0
 ________________________________________________________________________
 
 
+4/28 23:16 - 49:51 - Turns out what I thought he messed up in last section he want back through and showed the correct way which was they was I did it.  
 
